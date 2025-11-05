@@ -4,7 +4,7 @@
 - 👯 I’m looking to collaborate on some small teams.
 - 🤔 I’m looking for help with my study and ability to speak English. 
 - 💬 Ask me about everything.I'm a outgoing person.
-- 📫 How to reach me: Just contact me.
+- 📫 How to reach me: Just contact me here. Or my qq:3820961079.
 - 😄 Pronouns: I'm glad to meet people all around the world.
 - ⚡ Fun fact: I'm new to the website...
 
