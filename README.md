@@ -1,5 +1,5 @@
 ## Hi there 👋
--🔭 I’m currently a universty student.
+- 🔭 I’m currently a universty student.
 - 🌱 I’m currently learning about CS.
 - 👯 I’m looking to collaborate on some small teams.
 - 🤔 I’m looking for help with my study and ability to speak English. 
